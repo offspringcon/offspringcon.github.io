@@ -16,6 +16,8 @@ A number of adults who don't have kids but who are tolerant of kids being around
 ## 5. What about food, drinks, and programming?
 This is a super-casual relax-a-Con, so these things will just be taken care of casually and organically. Big Bear will be open 10AM - 6PM Friday and Saturday for people to prepare food. (Note that you will not be able to store food in this space.) We're working on having some drinks on tap in Bullwinkle's Palace, which will be open noon - midnight Thursday - Saturday for adults-only gaming and hanging out. Drinks to share can also be stored here. There's no programming per se, but we'll have the large Gandy Dancer room (fireplace, tons of gaming tables and space) and Trapper's Cabin (kids-only space) Thursday through Sunday. If someone wants to organize a game of Salad Bowl, bingo, Iron Bartender competition, Saturday AM cartoons, or a cribbage tournament, please do!
 
+Snooty Reception: This will be _Friday_ night, March 1 at 7PM in Bullwinkle's Palace. All adults are welcome to attend. Please consider bringing a nice/special bottle of wine, a cheese pairing, and some water crackers for an impromptu/informal wine tasting!
+
 ## 6. Who's running the show and taking care of the (minimal) logistics and communications?
 That would be the Stull kids. You know them as Matt(hew) Bribitzer-Stull and Emily Stull Richardson. Contact one of us with questions or problems before or during the Con.
 
@@ -27,3 +29,6 @@ We can't predict what will happen with COVID in the future, nor will we sell out
 
 ## 9. Where do I double-check other details?
 If you're attending, you should have a link to a spreadsheet with names of attendees, confirmation that you've paid registration, room to record games you'll be bring (or want others to bring) and lots of other information. Check that for anything not on this site.
+
+## 10. Cancellation Policy: 
+If your circumstances change and you can't join us, you can get 100% of your room deposit back if you cancel no later than 24 hours before your reservation starts. Unfortunately, we have signed a contract that commits us to $2,295 plus tax in expenses to the Lodge for rental of the public spaces (Gandy Dancer, Trapper's Cabin) and subsidies on Big Bear and Bullwinkle's (also public spaces for most of the Con). We collected a grand total of $2,460 in registrations (including those that Matt's and Emily's families paid), so we're not able to offer any refunds. That said, if we hold this event in the future, we're willing to waive registration for those who had to cancel.
